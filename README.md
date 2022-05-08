@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iQBUILDHUB
 - 👀 I’m interested in UI/UX DESIGNS
-- 🌱 I’m currently learning UI DESIGN
+- 🌱 I’m currently learning PRODUCT DESIGN
 - 💞️ I’m looking to collaborate on DESIGNS
 - 📫 How to reach me ...
 
